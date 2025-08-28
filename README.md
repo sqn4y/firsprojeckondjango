@@ -1,4 +1,4 @@
-sofia my wifi# firsprojeckondjango
+sofia my wife# firsprojeckondjango
 
 Проект еще в разработке
 nh
